@@ -1,1 +1,2 @@
-
+Prompt A- Create an artwork that uses painting and emphasizes lines, shapes, emphasis, contrast, and movement. Use oil painting and the glazing here the scene should be couple  bird sitting next to each other loving and giving company to each other in beautiful garden.
+Prompt B- create artwork that uses printmaking that emphasizes lines, shapes, emphasis, contrast, movement. use Relief printing the scene should be couple  bird sitting next to each other loving and giving company to each other in beautiful garden.
